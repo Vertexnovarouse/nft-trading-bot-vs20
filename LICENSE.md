@@ -1,4 +1,4 @@
-# 
+# high-frequency NFT Mint Bot for nft trading bot | arbitrage-opportunities & real-time-monitoring is the best nft trading bot, featuring arbitrage-opportunities and
 
 
 
